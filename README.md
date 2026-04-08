@@ -6,7 +6,7 @@
 ╩ ╩╚═╝╚═╝╩ ╩╩═╝╚═╝═╩╝╚═╝╝╚╝  ╩ ╩═╩╝
 ```
 
-<img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=72&pause=1000&color=00FFFF&center=true&vCenter=true&width=1000&height=160&lines=𝐌𝐄𝐆𝐀𝐋𝐎𝐃𝐎𝐍-𝐌𝐃;ᴡʜᴀᴛsᴀᴘᴘ+ʙᴏᴛ+2026;ʙʏ+Dʏʙʏ TɛƈɦX" alt="𝐌𝐄𝐆𝐀𝐋𝐎𝐃𝐎𝐍-𝐌𝐃" />
+<img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=72&pause=1000&color=00FFFF&center=true&vCenter=true&width=1000&height=160&lines=𝐌𝐄𝐆𝐀𝐋𝐎𝐃𝐎𝐍-𝐌𝐃;ᴡʜᴀᴛsᴀᴘᴘ+ʙᴏᴛ+2026;ʙʏ+Dʏʙʏ+TɛƈɦX" alt="Dyby" />
 
 <br/>
 
